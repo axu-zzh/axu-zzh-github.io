@@ -1,1 +1,1 @@
-# axu-zzh-github.io
+# axu-zzh.github.io
